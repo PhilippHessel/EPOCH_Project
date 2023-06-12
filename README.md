@@ -1,3 +1,7 @@
+![logo-eu--en](https://github.com/PhilippHessel/EPOCH_Project/assets/43395525/1acac646-ca9f-422b-81a5-0189135f45fd)
+
+
+
 Women’s political EmPOwerment and Child Health (EPOCH)
 
 PI: Philipp Hessel
